@@ -5,7 +5,7 @@
 -->
 Here are some ideas to get you started:
 
-- 🌱 “What keeps me going is goals.” ― Muhammad Ali
+- 🌱 “Indeed, after that difficulty there is ease.” ― [ al-insyirah:06 ].
 - 📫 How to reach me: [www.heriipurnama.ga](http://heriipurnama.ga), [linkedIn](https://www.linkedin.com/in/heriipurnama)
 - 🔭 Fun Fact: [www.rumahinformatika.com](https://www.rumahinformatika.com)
 - Interested to work together? just send me a email
